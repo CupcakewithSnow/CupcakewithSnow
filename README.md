@@ -2,6 +2,6 @@
 
 
 
-- ⚡ Fun fact: I am stupid
+- ⚡ Fun fact: I am i
 
 
